@@ -1,1 +1,1 @@
-# a vocabulary of Latin 
+# A Vocabulary of Latin 
